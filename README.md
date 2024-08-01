@@ -1,0 +1,1 @@
+# strange_moore7
